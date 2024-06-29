@@ -1,3 +1,5 @@
+fandom lurker
+
 i hide folk verryy loosely. not a huge fan of dupes.
 
 ![](https://files.catbox.moe/zh0ckj.png)
