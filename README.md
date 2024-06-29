@@ -1,3 +1,4 @@
 i hide folk verryy loosely. not a huge fan of dupes.
-under 15 iwc
+
 ![](https://files.catbox.moe/zh0ckj.png)
+smitten over that damned scot![](https://gifcity.carrd.co/assets/images/gallery88/2b9afe77.gif?v=b2f08ae6)
