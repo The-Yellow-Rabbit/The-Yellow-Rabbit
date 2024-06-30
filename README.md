@@ -1,4 +1,4 @@
-fandom lurker
+->fandom lurker<-
 
 i hide folk verryy loosely. not a huge fan of dupes.
 
