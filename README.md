@@ -8,4 +8,4 @@
 
 <p align="center"> <img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=b2f08ae6">
 
-<p align="center"> my favs - Jᴏʜɴɴʏ, Sɪᴍᴏɴ, Isᴀᴀᴄ, Rᴇɢᴜʟᴜs
+<p align="center"> johnny, simon, isaac, regulus >>> you
