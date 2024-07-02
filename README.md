@@ -1,6 +1,6 @@
 <p align="center">fandom lurker
 
-<p align="center">i hide folk verryy loosely. not a huge fan of dupes. ᵒˢᵈᵈ ³.
+<p align="center">i hide folk verryy loosely. not a huge fan of dupes. ᵒˢᵈᵈ ³
 
 <p align="center"> <img src="https://files.catbox.moe/iylwv3.png">
 
