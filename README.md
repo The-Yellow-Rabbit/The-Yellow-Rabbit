@@ -1,6 +1,6 @@
 <p align="center">fandom lurker
 
-<p align="center">i hide folk verryy loosely. not a huge fan of dupes. ᵒˢᵈᵈ ³
+<p align="center">i hide / mute folk very loosely, but i clean out my hides every few months. not a huge fan of dupes.
 
 <p align="center"> <img src="https://files.catbox.moe/iylwv3.png">
 
