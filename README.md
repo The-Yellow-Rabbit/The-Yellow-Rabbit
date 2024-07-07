@@ -1,6 +1,4 @@
 <h3> $${\color{red}fandom \space lurker \space \color{white}{,}\color{red} \space people \space watcher\color{white}{.}}$$
-
-  <p align="center">DONT COPY MY SHIT. you will get called out lmfao.
  <p align="center">i hide / mute folk very loosely, but i clean out my hides every few months.
  <p align="center">not a huge fan of dupes. im mentally ill, that influences my behaviors.
 
